@@ -1,4 +1,4 @@
-
+Get ahead in jujutsu shenanigans with smart Scripts for jujutsu shenanigans, featuring teleport and invisibility. Download now to dominate every match with ease and confidence,
 
 
 
